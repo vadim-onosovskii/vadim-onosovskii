@@ -1,0 +1,1 @@
+- 👋 Hi, I’m Vadim Onosovskii from Saint Petersburg, Russia. Currently I'm studying at LUT, Lahti, Finland.
